@@ -59,5 +59,5 @@ This analysis highlights the significant impact of social media on mental health
 
 ---
 
-**Crafted with ❤️ by Mohamed Samy**  
+**Crafted with ❤️ by Youssef Yasser**  
 One step closer to a better digital well-being!  
