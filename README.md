@@ -54,8 +54,8 @@ This analysis highlights the significant impact of social media on mental health
 ---
 
 ## 📬 Contact  
-👤 **Author:** Mohamed Samy  
-📧 **Email:** mohamedsamyomar55@gmail.com  
+👤 **Author:** Youssef yasser   
+📧 **Email:** yousefalshamy862004@gmail.com
 🔗 [**LinkedIn**](https://www.linkedin.com/in/mohamed-samy-ba9ba821b) | [**GitHub**](https://github.com/MohamedSamy57)  
 
 ---
